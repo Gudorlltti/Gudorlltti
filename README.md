@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @Gudorlltti
+- 👀 Because my name is difficult to pronounce, you can just call me Gudo!
+- 📫 You can reach me on Discord!
